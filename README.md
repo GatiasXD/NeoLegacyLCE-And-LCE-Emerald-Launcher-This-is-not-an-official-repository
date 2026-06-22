@@ -13,10 +13,6 @@ Este proyecto no es mío.
 
 Y les pido disculpas sinceramente si esto les molesta.
 
-
-Gmail.-
-thelegacy3107@gmail.com
-
 <img width="1920" height="669" alt="banner" src="https://github.com/user-attachments/assets/28e7927b-c095-4d47-ab93-ac5b025ef685" />
 
 
